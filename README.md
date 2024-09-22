@@ -1,0 +1,1 @@
+# ads-2024-e1-proj-web-t8-self-checkout
